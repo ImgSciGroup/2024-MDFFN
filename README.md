@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/cf50af60-2b05-421e-bb47-1807b4dfd26d)# lmgSciGroup
+# lmgSciGroup
 2024-MDFFN
 
 
